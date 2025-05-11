@@ -15,4 +15,6 @@ Documentar e centralizar projetos realizados durante a formação em Engenharia 
 
 ## 📞 Contato
 
-[Perfil no LinkedIn](https://www.linkedin.com/in/cristianoborgesjunior)
+- [Perfil no LinkedIn](https://www.linkedin.com/in/cristiano-mundin/)
+- [Portfólio Pessoal (Google Sites)](https://sites.google.com/view/cristianojunior?usp=sharing)
+
